@@ -1,0 +1,2 @@
+# premium-cloisonne-enam-001-cloisonne-wire-bending-pattern
+Stop losing your intricate wire bending patterns in messy notebooks or scattered files — your next masterpiece deserves a searchable, visual archive that grows with your craft.  The Cloisonne Wire Bending Pattern Archive is a Notion template built specifically for cloisonné artists who need to catalog, tag, and instantly retrieve every wire shape t
